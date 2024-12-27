@@ -13,6 +13,10 @@
 ![download (21)](https://github.com/user-attachments/assets/ea0f3702-4bc0-4d0d-bc09-dddbd86f2c2d)
 ![download (14)](https://github.com/user-attachments/assets/8aee9700-7a9b-46ae-b553-77e346bf4e6c)
 
+![image](https://github.com/user-attachments/assets/301f9e3e-0969-40ed-bb6d-2bbf6d03d885)
+
+![image](https://github.com/user-attachments/assets/8257c725-d247-459c-9842-4476ef7bf713)
+
 ------------------
 # fmri
 
@@ -24,3 +28,4 @@
 ![download (24)](https://github.com/user-attachments/assets/1f69887d-21fd-4613-b9fa-187318407d6d)
 
 ![download (25)](https://github.com/user-attachments/assets/49b536d7-844d-4d81-bc6a-e7b8c65acebb)
+
